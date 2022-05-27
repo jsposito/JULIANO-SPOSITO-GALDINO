@@ -1,4 +1,4 @@
-# JULIANO-SPOSITO-GALDINO
+# JULIANO SPOSITO GALDINO
 ## Oi eu sou o JULIANO SPOSITO GALDINO!
 <div align="center">
   <a href="(https://github.com/jsposito)">
